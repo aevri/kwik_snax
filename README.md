@@ -2,6 +2,22 @@
 
 Some food hacks I can't get enough of.
 
+## Crappuccino
+
+Ingredients:
+- Instant coffee.
+- Oatly Barista, or cow's milk.
+
+Method:
+- Boil a small amount of water in a kettle.
+- Put two teaspoons of instant coffee in a cup.
+- Pour just enough water over the instant coffee to dissolve it while stirring.
+- Shake up the milk to make it frothy.
+- Pour over the coffee to complete the cup.
+- Microwave for ~30 seconds to warm it up.
+
+☕
+
 ## Tiramisu
 
 Ingredients:
