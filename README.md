@@ -32,7 +32,7 @@ Method:
 - Place the sponges in a dish.
 - Tip the coffee and alcohol over the sponges. Don’t make them soggy.
 - Dust with cocoa powder.
-- Beat together the mascarpone and condensed milk until smooth. Pour over the sponges, covering completely.
+- Beat together the mascarpone and condensed milk until smooth and not runny. Pour over the sponges, covering completely.
 - Give a good coating of cocoa powder on top. Can add some chocolate shavings if you have them.
 - Leave in the fridge overnight for best results.
 
